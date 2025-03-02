@@ -1,0 +1,1 @@
+# vk_indexing_search_info_contest
